@@ -1,1 +1,2 @@
 # Report-on-the-Analysis-of-the-Spread-and-Control-of-COVID-19
+The following report provides an analysis of the spread and control of COVID-19. The information contained within is vital in understanding the current situation and taking necessary precautions to protect ourselves and our communities. It is important to stay informed and follow guidelines set forth by health officials in order to minimize the impact of this virus. Let us work together to keep ourselves and others safe during this challenging time.
